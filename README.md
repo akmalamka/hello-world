@@ -5,3 +5,4 @@ halooo
 namaku repo
 saya merupakan jenis motor yang terkenal di Indonesia versi sundanya
 galucu
+HAHAHAHa
